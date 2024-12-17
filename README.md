@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @basmoob
+- 👀 I’m interested in maths and food
+- 🌱 I’m currently learning python
+- 📫 How to reach me ifykyk
+- ⚡ Fun fact: i dont have a pet :( 
